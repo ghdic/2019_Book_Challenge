@@ -8,7 +8,7 @@
 
 지금 당장 시행해보고 있진 않지만 만약 한다면 적당한 가격에 시행할 수 있는걸 찾아 보았다.
 
-커피 : 잘 모름 =-=
+커피 : 잘 모름 =-= 카누 사서 먹음 ㅎㅎ
 
 mct 오일 : 
 https://www.coupang.com/vp/products/8934123?itemId=39178233&vendorItemId=4041700404&q=mct+%EC%98%A4%EC%9D%BC&itemsCount=36&searchId=ad38f25bfbfb4f8a836be2e04404bc5c&rank=0
